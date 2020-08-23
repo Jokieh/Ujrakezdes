@@ -1,0 +1,1 @@
+Ujrakezdes program gyakorlo bizbasz
